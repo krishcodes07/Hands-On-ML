@@ -88,4 +88,4 @@ I’ll be updating this repo **daily or weekly** as I continue learning new topi
 
 If you’re also learning ML, feel free to connect or collaborate!
 
-**Instagram:** [@thumbnaildesigner_krish](https://instagram.com/thumbnaildesigner_krish)
+**Telegram:** [@krish_codes](https://www.t.me/krish_codes/)
